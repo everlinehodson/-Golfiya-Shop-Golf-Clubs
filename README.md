@@ -1,0 +1,2 @@
+# -Golfiya-Shop-Golf-Clubs
+Golfiya. Com is a participant in the amazon services llc friends application, our website might also comprise affiliate advertising and marketing hyperlinks, this means that we receives a commission commission on sales of those services or products we write about. We are able to not be held responsible for any undesired outcomes due to product use, misuse, or uncontrollable circumstances.
